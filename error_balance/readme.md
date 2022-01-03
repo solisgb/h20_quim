@@ -1,0 +1,1 @@
+Error de balance iónico
